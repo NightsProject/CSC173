@@ -1,0 +1,1 @@
+I used gemini to help me understand the activity
